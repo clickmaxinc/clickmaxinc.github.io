@@ -1,1 +1,1 @@
-Clickmax Inc.
+Memo
